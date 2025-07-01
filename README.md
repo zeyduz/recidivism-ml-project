@@ -59,4 +59,4 @@ employment assistance are crucial for sustained success.
 after individuals secure employment to prevent relapse into criminal behavior.
 Overall, there are many benefits to improving rehabilitation programs regarding employment, but further steps must be taken to ensure an individuals proper return and integration into society, Improving rehabilitation programs without taking the steps to improve other aspects of an individual’s life such as housing or mental health would prove to be ineffective. Although our model demonstrates that rehabilitation programs can help individuals retain jobs, other steps must also be taken.
 
-Created in collaboration with Zeynepnur Duzgun and Miti Patel
+Created in collaboration with Alton Banushi and Miti Patel
